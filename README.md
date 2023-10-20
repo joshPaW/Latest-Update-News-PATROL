@@ -1,2 +1,8 @@
-# Latest-Update-News-PATROL
-WALA
+# Latest-Update-CafeNspace
+
+Members:
+
+Ace Lapan, 
+Ramon Benedick Lingling, 
+Joshua Ando
+
